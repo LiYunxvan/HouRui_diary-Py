@@ -6,4 +6,4 @@
 
 
 
-#### @Author：LiYunxvan([550W@douyin.com](https://www.douyin.com/user/MS4wLjABAAAA30n3gDEyFvP-gpxicjan8tlNZHmmOAB86fLNMrjR2csrK68hMW-R8jTkR2T2MncH?modal_id=7389428763190234408))
+#### @Author：LiYunxvan([550W@douyin.com](https://www.douyin.com/user/MS4wLjABAAAA30n3gDEyFvP-gpxicjan8tlNZHmmOAB86fLNMrjR2csrK68hMW-R8jTkR2T2MncH))
